@@ -1,5 +1,5 @@
 # 💫 About Me:
-I krish parashar
+I am  krish parashar
 
 
 ## 🌐 Socials:
